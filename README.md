@@ -1,0 +1,2 @@
+ไปรยา ปาละเขียว
+Praiya Palakerw
